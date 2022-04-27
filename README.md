@@ -7,7 +7,7 @@
 
 
 
-https://letsgomelck.github.io/WeddingDaySchedule.io/
+https://letsgomelck.github.io/WeddingDaySchedule.github.io/
 
 
 
