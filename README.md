@@ -1,7 +1,13 @@
 # WeddingDaySchedule.github.io
 # Wedding Day Timeline/Schedule
 
-最近更新：2022-04-27 18:31 :kissing:
+‘Updated on Mon 23 May 2022 03:41 CST’
+## 1.23 Lalaland 
+## 1.24 [Her Soundtrack - Photograph](https://youtu.be/O1aIoPnhoqg)
+## 1.25 Ed Sheeran - Photograph
+## 1.26 Harry Styles - Sign of the Times
+
+‘最近更新：2022-04-27 18:31 :kissing:’
 
 高清资源 Apple Music
 
@@ -71,10 +77,13 @@ https://letsgomelck.github.io/WeddingDaySchedule.github.io/
 
 ## 1.22 东西 很美味
 
+## 1.23 Lalaland 
 
+## 1.24 [Her Soundtrack - Photograph](https://youtu.be/O1aIoPnhoqg)
 
+## 1.25 Ed Sheeran - Photograph
 
-
+## 1.26 Harry Styles - Sign of the Times
 
 
 
